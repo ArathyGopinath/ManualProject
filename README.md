@@ -1,1 +1,1 @@
-manual project is Glitzindiafashion
+manual project is glitzindia.xlsx
